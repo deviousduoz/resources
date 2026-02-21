@@ -63,6 +63,10 @@ here's all of my resources collection i found on discord ppl message ^_^
 44. https://pochi.crd.co/
 45. https://ishimori.crd.co/
 46. https://rentry.co/sntrycodes
+47. https://rentry.co/htmlborders
+48. https://rentry.co/resource
+49. https://nukocities.neocities.org/
+50. https://rentry.co/rentryflagresources
 
 SYMBOL/UNICODE
 
