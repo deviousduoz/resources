@@ -10,10 +10,9 @@ here's all of my resources collection i found on discord ppl message ^_^
 7. https://www.photopea.com/ - draw on + edit images and gifs
 8. https://www.remove.bg/ - remove backgrounds
 9. https://texturelabs.org/ - MANY textures and materials
-10.<https://colorhunt.co/> color palette
-11.<https://coolors.com/> color palette generator
+10. <https://colorhunt.co/> color palette
+11. <https://coolors.com/> color palette generator
 12. <https://www.colourpod.com/?source=share> also color palette!!
-
 
  RENTRY/CARDD RESOURCES
 
