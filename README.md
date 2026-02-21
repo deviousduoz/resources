@@ -24,3 +24,4 @@ here's all of my resources collection i found on discord ppl message ^_^
 9. <https://rentry.co/mikopixels>
 10. <https://rentry.co/border>
 11. <https://rentry.co/ulquiorra>
+12. https://rentry.co/shibusen
